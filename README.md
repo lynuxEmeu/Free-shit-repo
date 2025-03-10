@@ -1,4 +1,4 @@
-THEORY IF RELATIVITY 
+
 Physics is cool if understood properly
 specially quantum physics 
 but here I'm just talking about a part of it
